@@ -1,3 +1,3 @@
-# Color Hunt
+# Pacman- Don't Tag Yourself
 
-Good luck on all your amazing games/websites folks <3
+BRUH IM SO BAD AT THIS
